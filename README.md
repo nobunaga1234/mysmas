@@ -1,0 +1,2 @@
+# mysmas
+nami s námi
